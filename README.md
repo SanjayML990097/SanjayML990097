@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am student
+I am presently studying MCA
 
 
 ## 🌐 Socials:
